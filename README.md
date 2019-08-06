@@ -1,1 +1,0 @@
-# Do-Now-Foundations-Hackathon-2019-1
